@@ -1,4 +1,4 @@
-👋 Hi, I’m @SergioChimeno
+👋 Hi
 
 # Proyectos
 
